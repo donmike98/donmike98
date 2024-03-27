@@ -1,4 +1,4 @@
-# **Salutations!** 👋
+# **Salutations future employer!** 👋
 
 🌱 I’m currently learning to become a junior software engineer in the near future!
 
